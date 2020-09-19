@@ -21,8 +21,8 @@ Klaus Marthy
 
 ## Zutaten
 
-* Ofenfeste Form von 1 Liter Inhalt,  Butter für die Form. 
-* 400 g mehligkochende Kartoffeln, z. B. Agria, geschält, in feine Scheiben geschnitten  
+* Ofenfeste Form von 1 Liter Inhalt,  Butter für die Form
+* 400g mehligkochende Kartoffeln, z. B. Agria, geschält, in feine Scheiben geschnitten  
 * 100g Lauch, gerüstet, in feine Ringe geschnitten 
 * 50g Schinken oder Rippli, gewürfelt.
 
